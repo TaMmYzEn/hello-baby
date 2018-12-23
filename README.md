@@ -1,2 +1,6 @@
 # hello-baby
 nothing like a BIG
+
+you can tell me when its over if the i was worth the pain ....
+cause you know i love the players....and i love the game....
+i wanna be a developer..
